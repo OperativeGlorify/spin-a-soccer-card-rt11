@@ -1,4 +1,4 @@
-
+escape waves for lucky blocks custom Script is the best escape waves for lucky blocks Script, featuring aimbot and private server access. Safe and
 
 
 
